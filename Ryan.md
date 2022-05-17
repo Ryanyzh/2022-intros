@@ -2,4 +2,4 @@
 
 I am in IT yr 2, and school is great esp the food in Munch WOW!
 
-Publicity Exco of Overflow:) 
+Am I a publicity exco of overflow?
